@@ -1,6 +1,6 @@
 ## Orchestructure Code of Conduct
 
-The following applies to all Orchestructure related resources, events, and other public opportunities in which Orchestructure provides. This includes but is not limited to our [Github presence](https://github.com/orchestructure), [meetup hosting](https://www.meetup.com/orchestructure/), and any other projects, events, efforts, competitions, etc., in-person or digital.
+The following applies to all Orchestructure related resources, events, and other public opportunities in which Orchestructure operates in any capacity. This includes but is not limited to our [Github presence](https://github.com/orchestructure), [meetup hosting](https://www.meetup.com/orchestructure/), [Slack channel](https://madeina2.slack.com/messages/C45JHC0A0/), and any other projects, events, efforts, etc., in-person or digital.
 
 ### Events Code of Conduct
 
