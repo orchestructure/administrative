@@ -28,7 +28,7 @@ If a participant (or individual wishing to participate in a Orchestructure event
 
 #### What to do if you Witness or are Subject to Unacceptable Behavior
 
-If you are being harassed, notice that someone else is being harassed, or have any other concerns relating to harassment, please contact a member of event staff immediately. Event staff introduce themselves at the beginning of every event, can be identified by t-shirts/staff badges, and are always available at every Orchestructure event. You are also encouraged to contact the Orchestructure organizers at orchestructure.meetup (at) gmail (dot) com.
+If you are being harassed, notice that someone else is being harassed, or have any other concerns relating to harassment, please contact a member of [Orchestructure Organizers](https://www.meetup.com/orchestructure/members/?op=leaders). The Organizers will introduce themselves at the beginning of every event, with at least one on-site at all times for its duration. The Orchestructure Organizers may also be contacted via email at orchestructure.meetup (at) gmail (dot) com.
 
 #### Incident Response
 
