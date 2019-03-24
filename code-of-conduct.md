@@ -22,7 +22,7 @@ Individuals who participate (or plan to participate) in Orchestructure events sh
 
 #### Consequences of Unacceptable Behavior
 
-If a participant engages in harassing behavior, the event organizers may take any action they deem appropriate depending on the circumstances, ranging from issuance of a warning to the offending individual to expulsion from the conference with no refund. Orchestructure organizers reserve the right to exclude any participant found to be engaging in harassing behavior from participating in any further Orchestructure events, trainings or other activities.
+If a participant engages in harassing behavior, the event organizers may take any action they deem appropriate depending on the circumstances, ranging from issuance of a warning to the offending individual to expulsion from the event, and if charged with no refund. Orchestructure organizers reserve the right to exclude any participant found to be engaging in harassing behavior from participating in any further Orchestructure events, trainings or other activities.
 
 If a participant (or individual wishing to participate in a Orchestructure event), through postings on social media or other online publications or another form of electronic communication, engages in conduct that violates this policy, whether before, during or after a Orchestructure event, the Orchestructure organizers may take appropriate corrective action, which could include imposing a temporary or permanent ban on an individual’s participation in future Orchestructure events.
 
