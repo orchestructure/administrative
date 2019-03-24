@@ -32,7 +32,7 @@ If you are being harassed, notice that someone else is being harassed, or have a
 
 #### Incident Response
 
-Our staff/organizers will respond to all harassment reports with utmost urgency. As referenced above, if a participant engages in harassing behavior, the event organizers may take any action they deem appropriate, ranging from issuance of a warning to the offending individual to expulsion from the event (with no refund). Orchestructure reserves the right to exclude any participant found to be engaging in harassing behavior from participating in any further Orchestructure events, trainings or other activities.
+Our staff/organizers will respond to all harassment reports with utmost urgency. As referenced above, if a participant engages in harassing behavior, the event organizers may take any action they deem appropriate, ranging from issuance of a warning to the offending individual to expulsion from the event, if charged with no refund. Orchestructure reserves the right to exclude any participant found to be engaging in harassing behavior from participating in any further Orchestructure events, trainings or other activities.
 
 Event staff will also provide support to victims, including, but not limited to: Providing an Escort, Contacting Venue security or local law encforcement, and briefing key event staff for response/victim assistance. In addition, staff will assist those experiencing harassment to ensure they feel safe for the duration of the event.
 
